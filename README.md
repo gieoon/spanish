@@ -39,3 +39,16 @@ tienes la mesa adelante
 y, de que quieres hablar?
 rachel tiene algo que decirte y mi gran inteligencia me dice, que este es tu suete rojo
 quieren que les traiga un cafe
+pertenece
+pareces
+yo pienso
+arrancate
+yo no solamente soy una rubia bella con un tracero stupendo
+si no quieres, no entre
+entrare
+estas segura?
+adelante
+tienes la mesa adelante
+y, de que quieres hablar?
+rachel tiene algo que decirte y mi gran inteligencia me dice, que este es tu suete rojo
+quieren que les traiga un cafe
