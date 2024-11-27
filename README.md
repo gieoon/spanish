@@ -53,3 +53,6 @@ y, de que quieres hablar?
 rachel tiene algo que decirte y mi gran inteligencia me dice, que este es tu suete rojo
 quieren que les traiga un cafe
 ventilador
+estuvo
+estaban
+queria
