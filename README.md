@@ -354,3 +354,6 @@ tres mil quinientos
 la mayoría de la gente quiere ir
 Era mi casa, mi hogar
 tres mil quinientos
+estuvo
+estaban
+queria
